@@ -1,4 +1,4 @@
-
+Enhance Alfred for macOS with Alfred for macOS premium Automation: privacy-protection & cloud-sync, the #1 automation. Includes privacy-protection and cloud-sync for a smoother
 
 
 
